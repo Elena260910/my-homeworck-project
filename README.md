@@ -1,2 +1,1 @@
-# Master ja sdelal
-# my-homeworck-project
+# I deed it again Master
